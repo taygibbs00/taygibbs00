@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @taygibbs00
+- 👀 I’m interested in Mathematics, Physics, Data Science/Analysis
+- 🌱 I’m currently learning about quasar outflows and their association with the variables coverage fraction and optical depth
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me: Using my email 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I used to be an electrical engineering student, but ended up finishing with a B.S. in Mathematics with minors in Physics and Data Science
